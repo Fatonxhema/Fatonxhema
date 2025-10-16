@@ -1,4 +1,4 @@
-# 👋 Hi, I'm **Fatonxhema**
+# 👋 Hi, I'm **Faton Xhema**
 
 ---
 
